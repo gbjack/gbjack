@@ -1,4 +1,4 @@
-- I am a digital designer and code landing page, email template, and HTML5 web banners for Marketing Platforms. 
+- Digital designer and email coder.
 - Please feel free to [contact me] (mailto:gbjack@gmail.com) for any inquiries.
 
 
