@@ -1,5 +1,5 @@
 - Digital designer and email coder.
-- Please feel free to [contact me] (mailto:gbjack@gmail.com) for any inquiries.
+- Please feel free to [contact me](mailto:gbjack@gmail.com) for any inquiries.
 
 
 <!---
